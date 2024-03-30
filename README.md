@@ -2,7 +2,7 @@
 
 Jillian Clasky is a poet and and fiction writer from Toronto. Her work has appeared or is forthcoming in journals such as _PRISM international_, _Room_, and _Maisonneuve_, and she was shortlisted for the 2023 CBC Poetry Prize. She currently lives in Ottawa and serves as editor-in-chief of _Common House Magazine_.
 
-## writing, etc.
+## writing
 
 ### Print
 
