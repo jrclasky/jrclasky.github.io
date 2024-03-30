@@ -28,4 +28,4 @@ Review of Michelle Brown’s _Swans_ — _The Ampersand Review_, no. 6 (forthcom
 
 ## freelance work
 
-Contact jrclasky@gmail.com for editing and tutoring inquiries.
+Contact [jrclasky@gmail.com](mailto::jrclasky@gmail.com) for editing and tutoring inquiries.
