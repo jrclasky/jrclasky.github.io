@@ -24,7 +24,7 @@ As Is — _Identity Theory_ (Apr. 2024)
 
 [Variations on Genesis](https://www.cbc.ca/books/literaryprizes/variations-on-genesis-by-jillian-clasky-1.7021666) — _CBC Books_ (Nov. 2023)
 
-[Sonnet and a Half for a Beginning](https://rustandmoth.com/work/sonnet-and-a-half-for-a-beginning/) — _Rust + Moth_ (Sept. 2024)
+[Sonnet and a Half for a Beginning](https://rustandmoth.com/work/sonnet-and-a-half-for-a-beginning/) — _Rust + Moth_ (Sept. 2023)
 
 ## freelance work
 
